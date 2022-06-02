@@ -1,0 +1,6 @@
+- 👋 Hi, *** hello, bienvenue, hos geldiniz *** 😎🎶🎶
+-   This is @serdarcekinmez 
+- 👀 I’m interested in Data Science, Data Analyze, Financial Analyzes, Crypto-currencies, Quantum Physics🧑‍🚀!!!
+- 🌱  currently learning Machine Learning and Deep Learning Methods by Python. Scikit-Learn
+- 🧑‍💻  looking to collaborate on Machine Learning 
+- 📫 Send a message to:  serdarcekinmez@gmail.com /   Discord :Serdar#7985    
